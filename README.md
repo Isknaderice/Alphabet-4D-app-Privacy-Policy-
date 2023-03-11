@@ -1,4 +1,4 @@
-# Alphabet-4D-app-Privacy-Policy-
+# Alphabet-4D-app-Privacy-Policy
 
 Privacy Policy
 Last updated: March 10, 2023
